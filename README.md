@@ -5,3 +5,4 @@ I completed the AI for Business course at CAMA College and am currently studying
 I'm also a master of ceremonies (MC) and a singer, and I hosted a live radio show on Radio Arina (2023–2024).
 📍 Richmond Hill, Ontario, Canada
 🔗 LinkedIn: linkedin.com/in/flora-bahari · Instagram: @flora1352 and @flora1352.music · YouTube: youtube.com/@flora1352
+🌐 Website I built: ESKAN Canada Building Group — www.eskanca.com
